@@ -1,1 +1,1 @@
-Floating Test - Testing 
+Floating Icon
